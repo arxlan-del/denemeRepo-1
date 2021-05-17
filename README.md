@@ -1,1 +1,7 @@
 # denemeRepo
+
+asdfsdf
+
+sadfdsf
+
+dsafsdf
